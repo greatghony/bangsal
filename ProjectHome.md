@@ -1,0 +1,1 @@
+Gudang Data. Dari Bangsal.
